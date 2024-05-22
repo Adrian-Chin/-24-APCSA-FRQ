@@ -1,0 +1,13 @@
+#2024 FRQ #1
+
+#    This question is about...
+
+
+#    Struggles with this question...
+
+
+#    Prior expereiences that helped...
+
+
+#    What I learned by doing this question...
+
